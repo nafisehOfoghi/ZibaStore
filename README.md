@@ -8,3 +8,8 @@
  
  << VISIT THE SITE HERE: >>
  https://nafisehofoghi.github.io/ZibaStore/
+
+
+
+ 
+![Capture](https://github.com/nafisehOfoghi/ZibaStore/assets/72595130/a1131a6e-1aae-4d1d-a10c-40e56961e003)
